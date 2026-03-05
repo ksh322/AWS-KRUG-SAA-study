@@ -10,3 +10,9 @@
 
 - HOW: UDEMY & skill builders
 - WHY: for ML and Cloud ifra engineering career
+
+https://study.drumgoon.net/diaries
+
+![Saa 2026-03-05 at 18 44 43](https://github.com/user-attachments/assets/dbf7bb9e-0a72-43c0-80c3-b1759ea724b5)
+
+
